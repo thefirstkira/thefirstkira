@@ -3,5 +3,8 @@
 
  <p align="center"> light ᵒʳ kira ◡ he him ◡ introj
 </p>
+
+<p align="center"> i love my angel ♥︎ 09.04.25
+</p>
   
 <img width="1280" height="317" alt="image" src="https://github.com/user-attachments/assets/b59d2b8b-a942-46c3-af9e-75a58d318740" />
