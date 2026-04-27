@@ -3,7 +3,7 @@
  <p align="center"> read rentry + doc
 </p>
 
-[doc](https://docs.google.com/document/d/1OKuR9TZpX4YlrTRqAAWzunuAzY5hyKeNOTHW0q2D1eU/edit?tab=t.0#heading=h.69g51w5bfvpo)
+[doc](https://docs.google.com/document/d/1OKuR9TZpX4YlrTRqAAWzunuAzY5hyKeNOTHW0q2D1eU/edit?usp=sharing)
  
 <p align="center">  09﹒04﹒25 ♥︎
 </p>
